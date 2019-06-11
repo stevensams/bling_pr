@@ -1,1 +1,8 @@
-# bling_pr
+# Bling PR
+
+
+# 📲 What
+
+# 🛠 How
+
+# 👀 See
